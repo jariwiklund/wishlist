@@ -4,7 +4,7 @@
 https://www.saxo.com/dk/adventures-on-the-wine-route_kermit-lynch_paperback_9780374522667
 
 ## Refraktometer
-https://brewparts.dk/refraktometer-2 . 
+https://brewparts.dk/refraktometer-2   
 https://www.maltbazaren.dk/shop/refraktometer-til-oel--2417p.html
 
 ## Vinglas
