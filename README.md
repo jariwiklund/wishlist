@@ -3,6 +3,10 @@
 ## Bøger
 https://www.saxo.com/dk/adventures-on-the-wine-route_kermit-lynch_paperback_9780374522667
 
+## Refraktometer
+https://brewparts.dk/refraktometer-2 . 
+https://www.maltbazaren.dk/shop/refraktometer-til-oel--2417p.html
+
 ## Vinglas
 Perfect Serve - Tasting glas 16 cm / 21 cl. http://www.spiegelau.dk/tasting-glas-p-1805.html  
 Bourgogne glas fra zalto https://www.bichel.dk/bourgogne-glas-fra-zalto-2-stk  
